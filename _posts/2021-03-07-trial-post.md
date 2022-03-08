@@ -6,7 +6,7 @@ This site serves to record the thoughts I had on the reality I am situated in --
 
 *Why spilling?*
 
-The idea of open blogging came at the time when I found that no one was interested at deep serious thoughts in private social circles. In the meantime I was caught up between the political currents and could not register my voice with either of the sides. I have grown uncomfortable at how social events or individuals have been framed to get away things I concern. 
+The idea of open blogging came at the time when I found that no one was interested at deep serious thoughts in private social circles. In the meantime I was caught up between the political currents and could not register my voice with either of the sides. I have grown uncomfortable at how social events or individuals are framed to get away things I concern. 
 
 
 *Disclaimer of Interest?*
